@@ -1,4 +1,4 @@
-# Phyllidiella-pustulosa
+# Phyllidiella pustulosa
 
 Phyllidiella pustulosa
 Phyllidiella krempfi
